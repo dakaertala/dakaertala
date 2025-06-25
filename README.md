@@ -1,2 +1,2 @@
 ### Made of bone, flesh and blood, I am a creator. I choose struggle over comfort.
-### For any inquiries, email me at root@kaertala.com
+### For any inquiries, email me at kaer@forgeuniversal.com
